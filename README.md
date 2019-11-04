@@ -19,5 +19,5 @@ Komposisi : Air kelapa, Propolis, Madu, Akar pepaya, Sarang semut, Daun ketepeng
 - Suplemen buat tubuh
 - Mudah didapatkan
 
-Banyak orang merasakan manfaat dari keajaiban M-BIOPRO
+Banyak orang merasakan manfaat dari keajaiban M-BIOPRO,
 Sekarang saatnya Anda merasakan keajaiban M-BIOPRO 
